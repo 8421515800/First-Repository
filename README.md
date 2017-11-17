@@ -1,2 +1,0 @@
-# First-Repository
-About me
